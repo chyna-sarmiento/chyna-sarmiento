@@ -14,4 +14,4 @@ I uphold all of my work to its greatest worth, down to the really simple project
 Don't worry, I'll only be putting the most important/best projects that I could showcase to impress you.<br/>
 Feel free to use my work, but don't forget to give a lil bit of credit!<br/>
 
-##### *xx, CS* :japanese_ogre:
+##### *Sincerely, CS xx* :japanese_ogre:
