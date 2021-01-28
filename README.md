@@ -13,6 +13,3 @@ Just a few things to note:<br/>
 I uphold all of my work to its greatest worth, down to the really simple projects.<br/>
 Don't worry, I'll only be putting the most important/best projects to showcase.<br/>
 Feel free to use my work, but don't forget to give a lil bit of credit!<br/>
-
-**_Sincerely, CS xx_** :japanese_ogre:<br/>
-Made by Chyna:tm:
